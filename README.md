@@ -1,2 +1,0 @@
-# thisisistanbul
-Full Guide
